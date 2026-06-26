@@ -22,4 +22,4 @@ If Quille offers in-app purchases or subscriptions, purchase information is proc
 
 If you have any questions about this Privacy Policy, please contact:
 
-teitheon@hotmail.com
+teitheon@gmail.com
